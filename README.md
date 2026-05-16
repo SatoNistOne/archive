@@ -1,2 +1,4 @@
 чуть не забыл залить на гит...
+
+
 https://docs.google.com/presentation/d/1YThJsqa-fEQWBdpHczrW2YfQcSB4wIcA1slBq9tVWmM/edit?usp=sharing
